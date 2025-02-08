@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @Darkenrahl1  
+# 👋🏻 Hi, I’m Darkenrahl1  
 
 ## 👀 Interests  
 I’m passionate about **Financial Analysis, Artificial Intelligence, and Machine Learning**, with a focus on:  
